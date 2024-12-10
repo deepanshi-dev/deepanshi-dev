@@ -1,18 +1,18 @@
-# deepanshi.dev
+* 🙏 Namste...
 
-*🙏 Namste...
+* 👩‍🦱 I am Deepanshi Verma
 
-*🎉 Wellcome to my profile.
+* 🎉 Wellcome to my profile.
 
-*👨‍💻 I am a student, studying in high school.
+* 👨‍💻 I am a student, studying in high school.
 
-*🎮 I am a girlgamer and loves to play games.
+* 🎮 I am a girlgamer and loves to play games.
 
-*🎗  I am beginner in developing, I started developing recently.
+* 🎗  I am beginner in developing, I started developing recently.
 
-*🎀 I am learning languages of computer.
+* 🎀 I am learning languages of computer.
 
-*🎶 I love music.🎸
+* 🎶 I love music.🎸
 
 
 
