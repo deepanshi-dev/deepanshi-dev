@@ -1,6 +1,6 @@
 ## ABOUT ME >>>
 
-* 🙏 Namste...
+* 🙏 Namaste...
 
 * 👩‍🦱 I am Deepanshi Verma
 
